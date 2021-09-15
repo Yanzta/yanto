@@ -1,0 +1,2 @@
+# yanto
+Ingin mencari wawasan
